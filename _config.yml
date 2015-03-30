@@ -2,7 +2,7 @@
 title: Austin Mueller
 description: ""
 baseurl: "" # the subpath of your site, e.g. /blog/
-url: "http://armueller.com" # the base hostname & protocol for your site
+url: "http://armueller.github.io/" # the base hostname & protocol for your site
 twitter_username: AustinRMueller
 github_username:  armueller
 linkedin_id:      142612111
