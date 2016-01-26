@@ -1,7 +1,7 @@
 ---
 layout: post
 title:  "2015 Retrospective"
-date:   2016-01-18
+date:   2016-01-25
 author: Austin Mueller
 categories: 
 ---
@@ -19,6 +19,8 @@ That event became a major pivot point.  After that seminar, we signed up for a 3
 
 All that hard work certainly payed off on August 22nd.  That was, without a doubt, one of the best days of my life.  Everything turned out perfectly.  The weather cooperated (thank god...), the food was spectacular, as were the drinks, and the decorations looked amazing.  There is only two things I would do differently if I could go back and do it again.  First, I would have gotten another chorizo taco before the truck left.  Second, I would have started planning earlier.
 ![Ceremony](/images/Ceremony100.jpg)
+Photo credit to [McFly Photo + Design](https://www.facebook.com/McFly-Photo-Design-167506753308216).  They did an absolutely amazing job photographing our wedding.
+
 Afterwards, we went down to the Greektown Casino for the night.  We left for our honeymoon the next morning.  We drove up to Glen Arbor MI and spent the week on the beach and thought about absolutely nothing.  No wedding planning, no work, just relaxing.  Of course, because the weather was so perfect the day of the wedding, it did not cooperate at all the week after.  It was mostly cold and windy... but we made the best of it and brought our cooler of beers and our books out to the beach anyway.
 
 #September —> December
