@@ -100,7 +100,7 @@ Following are all the notes I took while I was on the bike.  I recorded myself u
      My legs are tired... my shoulders are starting to get uncomfortable...  I would love to just take a shower and nap right now... thats what I did last time...*
 
 I took a pretty long break here... maybe 15 or 20 minutes?  I didn’t time it.
-I ended up trying one of the carbohydrate supplements, [XrCel](https://secure.xrcel.com/index.php?route=common/home), I got in the mail from the Pan Florida Challenge people in an attempt to get more calories in and push past the wall.  It was so utterly disgusting.  Ive been on a pure ketogenic diet for about 2 weeks now trying to eat as little sugar as I possibly can.  This thing had 26g of sugars... I wanted to puke... I could barely keep it down.  Tried eating some corn chips and a bite of a burger to help keep the XrCell down, along with trying to get more calories in.
+I ended up trying one of the carbohydrate supplements, [XrCel](https://secure.xrcel.com/index.php?route=common/home), I got in the mail from the Pan Florida Challenge people in an attempt to get more calories in and push past the wall.  It was so utterly disgusting.  Ive been on a pure ketogenic diet for about 2 weeks now trying to eat as little sugar as I possibly can.  This thing had 26g of sugars... I wanted to puke... I could barely keep it down.  Tried eating some corn chips and a bite of a burger to help keep the XrCel down, along with trying to get more calories in.
 
 - **50 miles**<br>
      *Back on the bike...  God damn that thing was gross...  We’ll see if I can make it the other 30 miles now...
