@@ -3,7 +3,7 @@ layout: post
 title:  "Goals for 2016"
 date:   2016-01-18
 author: Austin Mueller
-categories: 
+categories: Personal
 ---
 So I recently listened to Tim Ferriss's podcast [Recommendations and Resolutions for 2016](http://fourhourworkweek.com/2016/01/03/new-years-resolutions/) and I figured it would be good to do a blog post on my goals and resolutions for 2016.  Some of the things are more *want to do* and not so much goals, but I figured I'd write them all down anyway.
 

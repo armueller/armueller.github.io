@@ -3,7 +3,7 @@ layout: post
 title:  "2015 Retrospective"
 date:   2016-01-25
 author: Austin Mueller
-categories: 
+categories: Personal
 ---
 As promised, here is my 2015 retrospective.  Turns out doing a retrospective on an entire year takes a long time... I'm not sure why I was surprised by that, seeing as retros over a week can easily take an hour.
 
