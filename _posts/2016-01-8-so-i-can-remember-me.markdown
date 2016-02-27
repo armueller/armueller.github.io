@@ -3,7 +3,7 @@ layout: post
 title:  "So I Can Remember Me"
 date:   2016-01-08
 author: Austin Mueller
-categories: Personal, Thoughts
+categories: Personal
 ---
 Right now, I am sitting here at my desk trying to start on something that I know I should have started years ago.  I wish I had started years ago…  but late is still better than never.  What I am trying to start doing is journaling.  Not just in a notebook or privately on my computer, but publicly.
 
