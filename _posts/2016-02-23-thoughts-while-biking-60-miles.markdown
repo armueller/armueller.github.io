@@ -9,7 +9,7 @@ Ever wonder what goes through one's mind while riding 60 miles on a trainer?<br>
 Well, here's your chance to find out.  This was my longest ride as of this posting.
 ![My View](/images/OnTheBike1.jpg)
 
-##Preparation
+## Preparation
 I pulled myself out of bed at about 11:30am.  I knew that I needed to go to the bike shop to get a bike computer and that I needed to eat a decent amount of food before I started riding.
 
 For breakfast
@@ -22,7 +22,7 @@ For breakfast
 
 By about 3pm, I had the new bike computer all set up and ready to go and I was ready to get started.  My ketone levels tested at about 2mmol/L.
 
-##Thoughts
+## Thoughts
 Following are all the notes I took while I was on the bike.  I recorded myself using the voice memos app and tried to transcribe everything verbatim and uncensored.
 
 - **0 miles**<br>
@@ -114,7 +114,7 @@ I ended up trying one of the carbohydrate supplements, [XrCel](https://secure.xr
      *Yep I’m done...  My legs are really tired...  I’m really tired...  I might be able to go more but I would hate everything...
      I need a shower...  I need food...
 
-##Recovery
+## Recovery
 At that point, I got off the bike and headed upstairs to shower.  Oh my god did that feel good.  Once I got out of the shower, I got dressed again and laid down on my bed.  I knew I needed to eat a massive amount of calories, but getting up was so hard.  If I was alone, I might have just passed out there, but luckily Stephanie was there and she managed to motivate me enough to get up and make myself some food.  I knew I wasn’t going to be able to make up the 4200 calories I expended on the bike, but I was going to try.  I proceeded to eat corn chips, salsa, cream cheese, and a zucchini thingy while making myself a 4 egg Mexican style omelet with taco seasoned ground beef, cheddar cheese, onions, tomatoes, and pickled jalapeño peppers.
 ![Recovery Omelet](/images/RecoveryOmelet.jpg)
 
